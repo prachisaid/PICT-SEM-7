@@ -1,1 +1,1 @@
-Practica
+Practical
