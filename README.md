@@ -1,1 +1,1 @@
-Practicals - Se
+Practicals - Sem
