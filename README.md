@@ -1,1 +1,1 @@
-Practicals - Semest
+Practicals - Semeste
