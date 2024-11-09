@@ -1,1 +1,1 @@
-Practicals - Semeste
+Practicals - Semester
