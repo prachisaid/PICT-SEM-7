@@ -1,1 +1,1 @@
-Practicals - Semester 7 (LP3, LP4
+Practicals - Semester 7 (LP3, LP4)
